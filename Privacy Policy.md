@@ -1,3 +1,8 @@
+
+-------------------------------------------------------------------------------------------------------------------------------------------------------------
+Privacy Policy & Terms and Conditions of Use
+--------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Mr. Raj Kumar Menaria and Think-Tank Software Solutions  company built the Automate app as a Commercial app. This SERVICE is provided by Mr. Raj Kumar Menaria and Think-Tank Software Solutions  company at no cost and is intended for use as it is.
 
 This page is used to inform visitors regarding Our policies with the collection, use, and disclosure of Personal Information if anyone decided to use Our Service.
